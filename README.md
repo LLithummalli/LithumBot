@@ -11,7 +11,7 @@
 </p>
 </div>
 <p align="center">
-Project created by <a href="https://github.com/Amal-ser">Amal-ser</a> to make it public
+Project created by <a href="https://github.com/LLithummalli/LithumBot/edit/master/README.md
     <br>
        | © |
         Reserved |
