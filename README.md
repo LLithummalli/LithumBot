@@ -22,14 +22,14 @@ Project created by <a href="https://github.com/Amal-ser">Amal-ser</a> to make it
 <div align="center"> 
 
 
-## Click Youtube logo to Watch full video and findout password in this video 👇
-
- [![ANY DOUBT REFER IT](https://www.linkpicture.com/q/YouTube-Logo-700x394.png)](https://youtu.be/Tb1B-rS52uo)
 
 
-## Instagram  Follow ❤️
 
-https://www.instagram.com/p/CCdcH3FBd1a/?utm_medium=copy_link
+
+
+
+
+
 
 
   ### Simple Method
